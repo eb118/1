@@ -20,8 +20,8 @@
 
 ## 易倍体育回家页简介
 
-### 分享精彩体育赛事，在线竞猜赢Iphone14！<br>
-## 请收藏保存本网址：[github.com/eb118/1](https://github.com/eb555/1)<br>
+### 分享精彩世界杯赛事，在线竞猜赢Iphone14 pro！<br>
+## 请收藏保存本网址：[github.com/eb118/1](https://github.com/eb118/1)<br>
 
 
 ![avatar](https://github.com/eb555/2/blob/main/AAA.png?raw=true)
